@@ -1,2 +1,1 @@
-
-<img width="1105" height="1080" alt="Slide 16_9 - 22" src="https://github.com/user-attachments/assets/0bb078a0-3b34-4479-922f-b889abc282cb" />
+<img width="1658" height="933" alt="Slide 16_9 - 34 - Copia" src="https://github.com/user-attachments/assets/54f8e38a-dd5e-4ec7-9102-aa389e004f53" />
